@@ -1,1 +1,1 @@
-# Entrega no fiinalizada
+# Entrega no finalizada
